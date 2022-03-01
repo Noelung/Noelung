@@ -1,12 +1,5 @@
 ![cooltext405477911880507](https://user-images.githubusercontent.com/99995999/156237484-67793b1b-1831-44c0-bd52-a6028a2f4b5e.gif)
 
-
-
-
-
-
-
-
 - 👋 Hi, I’m @Noelung
 - 👀 I’m interested in Music, Videogames and Programing
 - 🌱 I’m currently a High School student at Preparatoria Federal Lázaro Cardenas
@@ -22,3 +15,6 @@ HORARIO
 Noelung/Noelung is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+More about me:
+https://www.youtube.com/watch?v=dQw4w9WgXcQ
