@@ -1,10 +1,11 @@
+![cooltext405477911880507](https://user-images.githubusercontent.com/99995999/156237484-67793b1b-1831-44c0-bd52-a6028a2f4b5e.gif)
+
+
 - 👋 Hi, I’m @Noelung
 - 👀 I’m interested in Music, Videogames and Programing
 - 🌱 I’m currently a High School student at Preparatoria Federal Lázaro Cardenas
 - 💞️ I’m looking to collaborate on anything I can help with or learn from it
 - 📫 How to reach me: a200144@lazarocardenas.edu.mx
-
-https://holatelcel.com/wp-content/uploads/2020/09/cheems-memes-9.jpg  
 
 HORARIO
 
